@@ -7418,6 +7418,580 @@ Then the moment passed, like a breath held and released.
 
 Would you like to expand this into a full scene for the book with more worldbuilding detail, or keep it short and mysterious like this?
 
+Absolutely! We can weave rich Templar-inspired layers into your world to deepen the mythos of the Keepers of the Veil, tie into Atlantis lore, and reflect current political dynamics. Here’s a breakdown of elements we could borrow and how to adapt them:
+
+⚔️ 1. Order Structure & Ranks
+Historical Templar: Three tiers — Knights (combat), Sergeants (support), Chaplains (spiritual) 
+worldbuilding.stackexchange.com
+
+Adaptation: The Keepers could mimic this structure:
+
+Warders (like Knights) — frontline defenders of sacred sites
+
+Acolytes (like Sergeants) — support roles: scouts, scholars
+
+Veil-Priests — spiritual officers overseeing rituals and meditations
+
+🏰 2. Financing & Influence
+Templars: Owned land, banks, vessels, castles; operated like a medieval multinational 
+history.com
++7
+en.wikipedia.org
++7
+audioboom.com
++7
+time.com
++2
+en.wikipedia.org
++2
+thetemplarknight.com
++2
+
+Adaptation: The Keepers once owned hidden veiled enclaves—remote nodes on the spiritual energy grid powered by aetherite. They may still control secret caches of relics and crystals, quietly funding independent smallholds and sanctuaries across the Empire and Republic.
+
+🕵️‍♂️ 3. Secretive Legacy & Conspiracy
+Templars: Suppressed in 1312 amid allegations of heresy, prompting myths of hidden treasure and conspiracies
+Adaptation: The Keepers were branded heretics and dissolved by the Emperor’s cabal. Their temples were closed or repurposed, but underground networks survived. They preserved lost warding techniques, Eldor scrolls, and Atlantean relics—all hidden from public knowledge.
+
+🌌 4. Atlantean Connection
+Legends: Some claim Templars possessed Atlantean knowledge or relics
+Adaptation: The Keepers could have ties to ancient Eldor civilization—Atlantis—guarding a fragment of its technology or spiritual force. Their rituals may intentionally echo Atlantis’s collapse, reinforcing the story’s core conflict of balance vs. hubris.
+
+📜 5. Symbolism & Mythic Imagery
+Templars: Known for white mantles with red cross, two knights on a horse, round temples
+Adaptation: The Keepers might bear a symbol—perhaps a stylized obelisk and twin wings, reflecting both past unity and current duality. Their hidden sanctums could mirror this geometry.
+
+🛡️ 6. Hidden Vaults & Relics
+Templars: Rumored hoarding of sacramental relics like the Grail or Ark
+Adaptation: The Keepers guard Aether Throne remnants, sealed relics from Atlantis, or devices that can amplify or nullify warding energy. These relics are pivotal to the device-network and plot.
+
+🚨 7. Suppression & Propaganda
+Templars: Fell victim to politically motivated accusations (heresy, moral crimes)
+Adaptation: The Cabal’s propaganda has portrayed Keepers as dangerous cultists. Modern citizens believe they caused the Desolation, making anyone associating with them vulnerable to arrest or worse.
+
+📌 Summary Table
+Templar Trait	Adapted for Keepers of the Veil
+Hierarchical Order	Warders / Acolytes / Veil-Priests
+Economic & Land Assets	Hidden sanctuaries, relic-holding caches
+Myth & Atlantis Connection	Guardians of Eldor/Atlantean relics
+Symbolic Identity	Obelisk + twin wings crest; ritual geometric architecture
+Secret Vaults & Magic Relics	Aether relics, legends of Atlantean devices
+Political Downfall	Framed by Cabal, modern suppression and misinformation
+Underground Network	Scattered Keepers in Republic & Free Cities, secret initiations
+
+🎯 How to Use in Your Story
+Flashback: Show a last ritual in a hidden temple of the Keepers before the Cabal crackdown.
+
+Discovery: Kaelen or Logan stumble on a ruined temple-precise vault containing Atlantean inscriptions or Eldor script.
+
+Propaganda Scene: A popularity moment where a preacher condemns Keepers, fueling plot tension.
+
+Parallel Battle: In one of the climactic dual battles, villagers discover the Obelisk reactivates with Keeper rites, mirroring the elite ritual in the capital.
+
+By weaving these Templar-inspired strands through the Keepers and Atlantis lore, you enrich the history and depth of your world—without losing focus on your central narrative.
+
+Would you like to explore one of these elements in more detail—like crafting a secret ceremony or drafting the propaganda lines the Cabal uses against them?
+
+
+
+
+
+
+
+
+
+
+Sources
+
+You said:
+Knights Templar were formed in  11:18 at least that's when they were  officially formed the real story began  many years earlier in Constantinople now  Istanbul Istanbul was Constantinople now  it'san buul that Constantinople been a  long time G Constantinople but constan  get the works there nobody's business  but the  T what tell me that song didn't pop into  your head the second you said it it did  but you might havean  [Music]  the brothers of the East was a Secret  order formed in Greece that eventually  set up their headquarters in Istanbul  they practiced Alchemy they studied  sacred geometry they performed writs and  rituals incorporating astrology  astronomy music and Mathematics so when  hudep pays a French nobleman met the  brothers of the East he was excited  depay was technically Catholic as most  of Europe was but he had family members  who were of the Sufi Islamic faith which  is the more mystical side of  Islam the pains have been told of this  secret group that possessed and was  protecting ancient knowledge he wanted  to meet this group and see for himself  at this time in history Europe was in  chaos various kingdoms were rising and  falling and Waring with each other in  the East Muslims and Christians were  clashing the war world was tearing  itself apart yet the brothers of the  East possessed a peaceful wisdom they  weren't concerned with modern Politics  the brothers had a purpose that was much  more important once Mutual trust was  established the brothers of the East  told the European visitors their story  well not their story the  story it was the story of an ancient  civilization that thrived thousands of  years ago the people were highly  spiritual and highly Advanced it was a  civilization that was free of poverty  wealth was meaningless they devised  methods of growing crops so that every  citizen was fed they could control the  weather droughts and famine were  impossible to HUD to pays this  civilization had abilities that sounded  like Miracles or like sorcery they could  communicate over long distances in L  somehow they had a way of levitating  objects no matter how large or how heavy  they had medicine that could cure any  illness allowing people to live very  long lives War didn't exist there was  such an abundance of resources that  anyone can have whatever they wanted and  what these people wanted most was to  pursue their own spirituality and then  they were  gone how depay's asked could a  civilization this powerful who seem to  be able to to control nature itself be  suddenly wiped  [Music]  out the brothers of the East said in a  single day the ground Shook and  volcanoes emerged and erupted then a  giant flood swept over the Earth and  destroyed everything I know what this is  going it was then that huep pays and his  eight Knights learned of Atlantis yeah  see  Hugh depay and his fellow Knights were  riveted by the story depay was a  nobleman a account in fact he was the  count of champagne Le  champag oh pardon my  French depay's was an educated man he  knew about Plato and his stories of the  island of Atlantis he thought they were  just Stories the brothers said Plato was  mostly correct but Atlantis wasn't just  a city or even just an island it was a  civilization that spanned the globe and  each city was connected using  transportation technology that again  sounded like magic the story became  almost overwhelming almost the brothers  said that ancient relics of Atlantis  still exist and they still possess their  power the power to travel great  distances the power of communication the  power to heal perhaps even the secret to  immortality if ever discovered these  artifacts would be the most powerful and  dangerous devices on Earth depay said  that any Kingdom any country any  religion would kill to have access to  this power the brothers of the East  agreed the technology of Atlantis could  not fall into the wrong hands so hudep  pays was offered an assignment find the  ancient artifacts and bring them back to  Europe for  safekeeping Hugh and the other eight men  immediately agreed and formed a secret  Fellowship but where do they start  looking  the brothers said they'll find artifacts  under the location of what used to be  King Solomon's Temple the Temple mount  in  Jerusalem the knights would have to act  quickly the holy land was a dangerous  place Jerusalem was taken by Christian  Crusaders in 1099 but who knows how long  they can hold it and there was another  problem it wasn't just the knights that  knew about the artifacts groups of  Christians Jews Muslims they were  searching too so when the knights  arrived in the Holy Land in 11:20 they  set up their headquarters where  Solomon's Temple once stood they  officially became known as poor fellow  Soldiers of Christ and the Temple of  Solomon the Knights  Templar and the Knights played the role  of courageous Warrior monks protecting  Christians making the long pilgrimage to  the Holy Land but while some Knights  Templar guarded Jerusalem other Knights  were digging beneath it day and night  they dug until one day they struck gold  literally the brothers of the East were  right they promised the knight's Templar  that if they dug under the Temple Mount  they would find artifacts that once  belonged to the great civilization of  Atlantis the knights found a large box  made of aaia wood and gold there was no  question they had found the legendary  Ark of the Covenant and then they found  five more  [Music]  year after year the Knights Templar  pulled Treasures from beneath Jerusalem  they found the Spear of Destiny the Holy  Grail The Emerald Tablet and pages and  pages of ancient esoteric wisdom they  learned there were 10 arcs though they  only found six the arcs were used in  conjunction with pyramids around the  world to create Limitless energy this  was similar to what Nicola Tesla  attempted at Warden Cliff Tower if you  want to learn how this technology worked  we have an episode that explains  scientifically how the Great Pyramid of  Giza could have been a power generator  pyramid link  below within the king's chamber of the  Great Pyramid is a stone box mainstream  egyptology says this box is a  sarcophagus to store a mummy but no  mummy was ever found there and the  dimensions of the Box are kind of small  for a human body but the box is the  perfect size to store one of the arcs  the Knights Templar discovered that the  pyramid were built for one specific  purpose to store the arcs and the arcs  they were built to store  Mana in the Bible Mana was a food source  that appeared to the Israelites in the  desert it's described as fine flakes  that look like frost on the ground but  according to Templar tradition the  Israelites and the atlantans before them  extracted Mana from plant and animal  matter and turned it into a monoatomic  white powder this white powder provides  energy a white powder that provides  energy ah New York in the80s was wild eh  uh you're thinking about something else  ah the Mana acted as an electrical  superconductor and powered the arcs  inside the pyramids the arcs generated  unlimited energy for the thriving  civilization they learned these  alchemical secrets from none other than  the Emerald Tablet Emerald Tablet link  below the Emerald Tablet gave detailed  instructions on extracting Mana from  animal bones the Mana could then be used  for energy or even for healing illness  he didn't the Emerald Tablet also tell  you how to become a mortal by making the  philosopher stone yep from eating pee  yes eating lots of pee yes immortality  sounds gross it does but if you want to  be immortal ain't no such thing as a  free lunch nope even if lunch is PE  that's  [Music]  enough some of these ancient texts even  talked about creating Mana from gold  when Mana was extracted from gold it  could be used to make objects lighter  for levitation now think about it the  ark is a box almost 4 ft long and 3 ft  wide it's made of gold gold is heavy the  Ark of the Covenant also contained The  Ten Commandments which were carved into  stone tablets stone is heavy just the  gold would have weighed almost 1,000 lb  that doesn't include the weight of the  stone or the acacia wood yet it only  took four men to carry it by the the way  the men who carried the ark were Levites  levite levitation I get a covenant link  below the Knights Templar also found  very old texts that even predated the  civilization of Atlantis these documents  spoke of a nonhuman race that enslaved  Humanity thousands of years ago to M  gold  an  Yi the honor an Aki come up a lot on  this channel and I promise I'll do a  full episode on them but here's the  short version the Anunnaki were Gods  worshiped by the ancient samarians but  they were actually aliens from a planet  Beyond Neptune called Nibiru the  Anunnaki arrived on Earth about  450,000 years ago searching for  resources specifically gold they were  trying to solve an atmospheric crisis on  their planet now finding gold in  abundance they settled on Earth and  established mining operations  eventually the Anunnaki created a labor  force by genetically modifying early  human ancestors accelerating the  evolution of homo sapiens we need this  episode Chief I know we'll do it I  promise yeah yeah yeah your promises and  60 bucks are worth about one night's  worth of Mana  okay so the Templars knew about the  Anunnaki and how they converted gold  into a powder used for healing  levitation and generating electricity  and it wasn't just the atlanteans and  Israelites that knew about  Mana surian texts spoke of an alchemical  science called Graal which you can't  help but notice is similar to the word  Grail the samarians use a substance  called shimana that was used to help the  Anunnaki Gods power their flying craft  in vtic Hindu and Jane texts this  substance was called Thea which again  was used to power flying crafts  Polynesian cultures believe Mana is a  force of nature anyone can extract fact  Buddhists call it Mani though the words  vary slightly in all these cultures the  definition and use are the same Mana is  a potent substance that allows Humanity  to tap into something very powerful in  nature and by the way the Templar cross  you can find that carved everywhere and  every time civilization existed the  cross is all over ancient Egypt you can  even see the cross carved on the ancient  Samaran depictions of the Anunnaki  Templar Legend says this was the symbol  of Atlantis after Atlantis was destroyed  in the great flood love the young  Adas yep the Templar Legend of Atlantis  and the great flood is exactly like  every other flood myth we find in every  culture around the world after the flood  a few survivors restarted civilization  with knowledge from Atlantis the cross  was carved in their honor but not  everything the knights found was  Atlantean some artifacts were from just  a thousand years before during the time  of Jesus there were ancient texts that  confirmed a lot of what was said in the  Bible but some texts contradicted the  Bible there was no way the knights could  let the church find out what they  discovered the Catholic church was  growing more powerful every year if the  truth came out it could shake the very  foundation of the faith and the knight's  Templar would be destroyed besides much  of the knight's funding came from the  church but no historical document  compared to the shock of what they  discovered next an uary which is a  collection of Bones this assary held the  bones of a very famous religious family  all buried together the knights found  the bones of Mary Magdalene John the  Baptist and Jesus himself but they also  found the bones of the children Mary had  with both of  [Music]  them to call what the Knights Templar  discovered Blasphemous would be a huge  understatement they discovered documents  and artifacts act that would literally  destroy the church they needed to keep  these Treasures safe from being  destroyed they needed to keep them from  falling into the wrong hands  specifically the Pope's hands the  Templars knew that the existence of the  bones of John Jesus and Mary Magdalene  and their children would mean the end of  the Catholic church but to rub salt in  an already gaping wound the Templars  found something potentially even more  threatening to the church an alternate  belief  system the Templars were Christian but  not in the strictest sense as most of  Europe was and more importantly as their  King and employers were spreading  information contrary to the teachings of  the Catholic church was not only heresy  it was a death sentence remember this  was all happening at the time of the  Crusades religions were at  War the Templars couldn't speak about  their findings but couldn't ignore them  either so instead said they hid them  they protected them and studied them  some ancient wisdom included Blasphemous  ideas like the divine feminine  reincarnation Heaven as a state of mind  and an innate connection to the Creator  the knights maintain their appearance as  devout Catholics they had to their  biggest Patron was the Catholic Church  you don't bite the hand that feeds you  especially the most powerful hand on  Earth but in secret the Knights Templar  were Christian gnostic  gnosticism comes from the Greek word  nosis meaning Divine knowledge other  cultures call this Enlightenment the  basic premise is that spirituality can  be found within without needing an  outside institution so no reason to have  priests monks saviors or churches at all  you didn't need them to find God he's  already within you one of the earliest  Templar documents mentions god-given  rights now Americans use this phrase or  something close to it in the Declaration  of Independence but that was in the 18th  century the idea of god-given rights  during the time of the Templars meant  excommunication or  Worse only the Roman Church could give  someone rights any alternative was bad  for business and instead of worshiping  Jesus many Knights Templar idolized John  the Baptist who they believe initiated  Jesus into gnosticism in the Great  Pyramid to the Templars Jesus  represented a Christos a universal  Consciousness anyone could access  similar to the Buddha they learned that  being born again didn't refer to baptism  it referred to reincarnation which  someone would literally be born  again with the bones of Jesus sacred  documents and artifacts from an ancient  civilization the Templars had plenty of  evidence to back up their beliefs they  wanted to share this knowledge but it  wasn't the right time the church was too  powerful they would have to wait wait  they would wait until this knowledge  could be shared with the entire world  and not seized by one Pope or one king  So after years of digging these early  Knights returned to Europe with the  treasures and knowledge and hid it and  then they built an  empire for 200 years the Knights Templar  grew and thrived their numbers increased  from a handful of soldiers to tens of  thousands of men and women women the  Catholic church and Christian Lords  throughout Europe gave the Knights  Templar money land and power to help  their cause the Templars created  Cathedrals power structures and systems  of democracy they created the first  banking system a system we still use  today during the Dark Ages the journey  from Europe to Jerusalem was dangerous  road agents were robbing the pilgrims of  everything they had so the Knights  Templar set up locations along the way  called commanderies and any one of these  Loc s you could deposit your gold in  exchange for a note you then take this  note to another commander and exchange  it for gold and for every transaction  the Knights Templar charged a small fee  it was an ingenious system used by  thousands of people for hundreds of  years over time those little fees added  up now individually the knight's Rapport  when joining you gave all your wealth to  the order the order then took care of  you and all its members the treasures  and knowledge passed from generation to  generation with each Grandmaster  responsible for their  safekeeping and for those few hundred  years the Knights Templar were extremely  successful at distracting the church  from their true purpose a little too  successful eventually the Knights  Templar had their own armies their own  fleets of ships they had their own  Merchants Masons and Farmers they were  independent and self-sustaining the  knights Templar became the first  multinational corporation they had no  need for a king or country in fact the  opposite happened the Knights Templar  was so wealthy that King philli of  France was borrowing money from them in  the fall of 1307 King Philip the fourth  needed financing for another War he  wasn't going to borrow any more money  from the knights instead he would take  it from  them the Templars had gone from Humble  Defenders of Christianity to a serious  threat to the entire power structure of  Europe the king and the church and like  many powerful rulers King Philip didn't  tolerate threats so Philip and Pope  clont V devised a  plan Pope clont by the way was born  Raymond Bertrand and was a childhood  friend of the king when the previous  Pope died in 1304 King philli made sure  his friend was elected to what was one  of the most powerful seats of power on  Earth in short the pope owed him one  on Friday the 13th of October  1307 100 Templars including The  Grandmaster jacqu deole were arrested  for 7 years they were threatened and  tortured to try to gain access to their  knowledge and wealth after making false  confessions they were found guilty of  heresy and sentenced to death but now  there's a plot twist for centuries  history claimed the church had condemned  the Knights Templar as Heretics and  eventually had them executed but but in  2001 a document was found in the Vatican  secret archives it's called the shanon  parchment the shanon parchment  documented the inquiry led by three  Cardinals appointed by Pope clemont V it  details the investigation and the  charges against the Templar leaders  including The Grandmaster jacqu deole  the shenon parchment reveals that the  pope absolved the Templer leaders of  heresy they were allowed to reconcile  with the church the pope would allow the  order of the knights temp to continue  their work King Phillip didn't like this  result he applied pressure to the pope  remember the pope owed him one so in  13312 Pope clemont officially disbanded  the Knights Templar the leaders of the  order including jacqu de mle were later  burned at the stake on charges of heresy  even though they were forgiven of these  crimes but Grandmaster jacqu de mle  would enact a small token of Revenge for  this betrayal of Justice as he slowly  burned to death mle issued a curse to  the pope and the King of France he  promised them that they would be dead  within a year this was March of  1314 a few weeks later Pope clont was  dead according to One account while  lying in state he was struck by  lightning the fire was so intense that  his body was unrecognizable and if you  read up on this Pope you'll agree that  this was divine Justice in November King  Philip had a stroke and died he was 46  years old the Templar curse was  fulfilled France had now lost its king  and its Pope and Europe had lost their  beloved Knights or so it  seemed when the arrest order was given  on October 13th the Knights Templar knew  it was coming they had spies everywhere  they had known for weeks and they used  those weeks to plan on October 12th the  night before the arrest order was given  the templar's entire fleet of ships  disappeared into into the darkness and  aboard those ships were all the ancient  Atlantean artifacts the holy treasures  and forbidden documents shock de Malay  and about a 100 Knights stayed behind  they hoped they could reason with the  king and the pope they failed in that  mission but succeeded in another  disbanded but not destroyed in hiding  but not in prison the Templars formed  into smaller groups they assimilated  into other orders some assumed new  identities and disappeared altogether  the knight's Templar in name ended in  1312 but their mission continued in fact  it continues today the evidence is  everywhere evidence of the knights  Templer can be found all over the world  after they disbanded they were  determined to keep their knowledge and  traditions alive so they created Alias  groups to avoid detection in Scotland  they became  Freemasons Portugal they were known as  the Knights of Christ in Germany they  created  Rosicrucianism there's also evidence of  them in the early Americas Nova Scotia  has the legendary Oak Island with buried  Templar treasure and deadly curses an  indigenous tribe in Panama known as the  White Indians of Daran have pale skin  and Caucasian features some believe  their descendants of the first Templars  in the Americas when asked about the  knight's Templar the natives called them  our brothers in early Europe Templars  were the first Vikings the first Pirates  were Knights Templar the famous skull  and crossbone symbol the Jolly Roger  that flag was first flown by the Templar  Navy to frighten their enemies before  battle one of the most famous Templar  symbols is the Red Cross with a white  background another is the depiction of  several Knights on a horse like this  statue in London both of these are found  in cathedrals and chapels all across  Europe if you read or saw the code you  may remember rosin Chapel in Scotland  Pagan and Templar symbols are on every  inch of it some like this carving of a  knight on Horseback are obvious this is  the gravestone for William Sinclair it's  in the lower part of rosin Chapel it  specifically says Knight  Templar Williams Sinclair had no love  for the church and provided help to any  Knight's Templar who asked for it but  it's not just crosses and horses that  the knights engraved on their  architecture  there are more subtle Clues relating to  some of their Gnostic and sometimes  Pagan beliefs sculptures of Angels in  strange positions are common in rosin  chapel and are an important right in  Freemasonry but Freemasonry wasn't  supposed to have started until  1777 Rosland Chapel was built in  1446 over 100 of these little green men  are scattered around rosin Chapel  they're Pagan symbols and thought to  originate from ancient Celtics paganism  simply refers to anything that isn't  Christian Muslim or Jewish why would  there be hundreds of non-Christian  symbols in a Catholic Church Templar  Legend says they were placed there as a  message some of the more interesting  carvings are of plants that Europeans  never should have known  about this is a picture of corn over one  of the windows in Rosland chapel and  here's one of Trum but corn and Trillium  are native to North America rosin Chapel  was built on almost 50 years before  Columbus sailed to the new world how  would Templars know what these plants  look like well isn't it obvious they  were there  first Templar Legend says Sir Henry  Sinclair grandfather of the Builder of  Rosland Chapel was not only a Templar  but was among the first Europeans to  visit the new world not only that but  Christopher Columbus himself was  associated ated with the Knights he was  a distant relative of the Sinclair's  Columbus's daughter was married to The  Grandmaster of the order he had access  as all Grand Masters do to ancient  knowledge of the knight's Templar  including their Maps Columbus knew there  was something on the other side of the  Atlantic he didn't know what but he knew  there was land and treasure he knew this  because the Knights Templar had maps of  the new world for centuries one of these  was the per Reese map and you know this  famous map it shows the new world and  Antarctica hundreds of years before they  were rediscovered per Reese by the way  was a cartographer from Istanbul which  in his time was Constantinople  birthplace of the Knights Templar was  Pur Rees a Templar maybe coincidence  maybe but when Columbus wanted to sail  to the new world he first approached  King John of Portugal for financing King  John refused so Columbus went to  Portugal's enemies Spain and England  Queen Isabella of Spain came up with the  money first and the rest is history but  Templar history tells a different story  they say Portugal refused to finance  Columbus because they already knew about  the new world Knights Templar had been  sailing there for years Portugal was  populated by so many Knights that it was  considered a Templar nation in fact the  word Portugal means Port of the GS but  Templars say it really means Port of the  Grail  ah Knights Templar history says they  were trading with Native American tribes  for years that's where they got a lot of  their gold and the Templars had a very  good relationship with the people of the  new world Columbus knew this how do we  know well when Columbus sailed the ocean  blue in 1492 the N the Pinta and the  Santa Maria all flew flags with the  Templar  cross he knew the natives would  recognize this symbol and be peaceful  and they were at first sadly the  Europeans didn't return the favor the  Knights Templars say they were the first  Europeans to visit the Americas fine but  can they prove it they  can in 1898 Olaf Omen was clearing land  on his farm in Minnesota when he  stumbled upon a strange looking  rock it was a tablet about 30 in tall  and 16 in wide carved in it were symbols  that Omen didn't recognize this tablet  became known as the Kensington runstone  Omen had it analyzed and translated the  inscription said it was left by Viking  Travelers in  1362 and this isn't a stone found on the  coast these Vikings were in the middle  of the continent Vikings in the new  world a century before  Columbus now remember according to  Templar tradition the first Vikings were  Knights Templar then there's the  narraganset runstone found in Rhode  Island in 1939 also with Viking  runes only 14 mi from where this run  roomstone was discovered is Newport  Tower this is a mysterious 8 column  structure it's rumored to have been  built by Vikings in the 1500s to track  the solstices the local Museum says it's  just the base of a lighthouse but most  locals disagree as far back as the early  1800s records and legends have given  credit to Vikings but why eight columns  why not just build it as one solid  cylinder well the answer leads us back  to gnosticism the number eight is highly  significant to gnostics it represents  completeness a Divine fullness remember  earlier when I mentioned Jesus was  initiated in the great pyamid well  there's a reason for that if you watch  the episode that we had about the  pyramids link below you'll remember that  the Great Pyramid has eight sides not  four to this day Templars are initiated  in the Great Pyramid and they believe  that Egypt was one of the main sources  of wisdom for the original Knights and  if you look the number eight is  everywhere in Templar symbolism and  architecture the maltes cross has eight  points and was worn by a medieval order  of knights that were attacked by fire  today it's the symbol of many  firefighters yeah shout out to NFD New  York's bravest eh you're here buildings  like Temple Church and elely cathedral  in England have octogonal features and  the number eight scattered all over the  place you only have to look at a few  pictures of rosin Chapel to start seeing  the numers showing up again and again  evidence of the knight's Templar is  everywhere now we can't cover the  knights without mentioning the  Freemasons countless rights symbols and  beliefs connect the two groups almost  seamlessly Masons Trace their Origins  back to the Temple of Solomon just like  the Templars on Oak Island Nova Scotia a  money pit was discovered in 1795 along  with a Templar engraving since then the  Freemasons have been involved in almost  every search for the Lost Treasure both  Masonic symbols and Templar crosses are  scattered across the island the  connection between the groups is so deep  that they still see each other as  brothers to this  day another Templar connection is with  Rosicrucianism which heavily emphasizes  the rose and the cross both Templar  symbols but why why did the Templars  spend so much time and money hiding  their  legacy well the Knights Templar had a  higher purpose their ultimate goal was  to change the world for the better they  knew the ancient artifacts and knowledge  would be a shock to society but this  knowledge was never meant to stay hidden  eventually the knights will share the  truth and the truth might come out  sooner than you  think Timothy Hogan is the current  grandmas of one of the Templar orders  he's on a mission to prepare the world  to embrace their secrets he insists that  this knowledge is powerful enough to  drastically alter our society as we know  it in a positive way currently all the  Templar Treasures are hidden in vaults  around the world seven of which are here  in the United States and according to  Hogan the world is just about ready for  their release he says they'll do it in a  way where no one government no one  religion will have complete access to  the information the release of  information will be controlled to ensure  everyone benefits because really that's  the templar's entire purpose it has been  since the beginning they wanted freedom  for the people physical Freedom From The  King and spiritual freedom from the pope  unfortunately it wasn't possible in the  14th century but today it could very  well succeed we're at a pivotal point in  history where many feel like something  is about to happen they just don't know  what and I feel it too now that might be  nothing more than Humanity's obsession  with death and the end of the world but  maybe it's more than that I think we all  know that we can't go on living this way  constant Wars around the world the  hatred within our countries the  dishonesty of our leaders the corruption  of our institutions it has to stop  imagine how different our lives would be  if we had access to ancient wisdom and  Technology it would be a revolution we  could finally do what Nicola Tesla  almost did create free energy for the  entire planet it would take a while but  eventually everyone on Earth could  access healthy food clean water and live  long healthy lives free of illness and  pain it would be a revolution crime  poverty and War wouldn't be necessary in  a world of abundance all due to the  artifacts being held in secret vaults  around the world it would be a  revolution that is if they're  [Music]  real today's story of the nights Templar  comes from one man Timothy Hogan he's  The Grandmaster of the order of the  Temple of secret initiates the otsi he  tells the story of ancient wisdom  Alchemy holy relics and Atlantean  artifacts it's a fascinating story but  is it true well there's nothing to  debunk about his story but there's also  no physical evidence to prove it so it  really comes down to Mr Hogan do you  believe him now you know what I'm going  to call him Tim because I know he's  watching hi Tim this is the part of the  episode where I tell you all the  positive and negative things I can about  the author of the story but today we  have to do things a little differently  recently on live streams I've been cold  reading rough drafts of scripts for this  channel  you probably assume this but I have a  team of writers researchers and  contributors because well I I need to my  cute 12-minute videos about weird  animals have now become 40-minute  documentaries I'm just a guy who talks  to a fish I need help anyway when I read  the scripts live I'm literally reading  them for the first time along with you  obviously they're never final scripts I  rewrite everything I'm given I also  research and fact check as much as I  can oh yeah then this one has to put in  his jokes n you'd be nothing without me  well  nothing but here's where things took a  turn first after reading the draft I was  contacted by a viewer hi Stan Stan knows  Timothy Hogan he felt that the script  was unfair to him that it attacked him  too personally and you know what I think  Stan was right you can still see the  live read on the channel under the live  tab but here's the short version The  Script brought up Tim's divorce and a  situation he had with a woman who was  suffering from addiction and mental  illness she took over his Facebook page  and posted wild stuff as him like she  was The Reincarnation of Mary Magdalene  so that makes him Jesus and things like  that and look those things happened and  it's not a good look but are they  relevant to his story about the knight's  Templar absolutely not just like my ex's  aren't relevant to the work I do now  yeah you got some real pieces of work in  you pissed I know some real pieces of  work I tell you I know I went through  some rough batches your wife is a saint  I can't deny that but that's the point  Tim's personal life is just that  personal and I don't really like gossip  okay I like gossip but I don't do it on  the channel now you do it on the live  streams okay that's fine let me get  through this so Tim's personal life is  irrelevant but his professional life  regarding his work with and as a  knight's Templar is relevant Tim has  detractors people that don't like him  people that don't believe him I asked  the researcher where she found these  people they're unreddit aren't they  they're unreddit they hate you unreddit  too oh they don't love you either fair  enough Tim's detractors are what seem to  be members of different orders of the  kns Templar or other fraternal  organizations it's actually hard to  follow if you're not in that world now  people often ask me if I'm a mason or in  groups like that and I'm not and I joke  that I'm not a joiner I don't play well  with others because that's true so when  people talk about Grand Masters and  seventh degrees and secret handshake and  all that stuff I don't get it I don't  impune it but I really don't get it but  the people that are in those groups do  get it and they take it very  [Music]  seriously there's been infighting with  these various orders for a thousand  years and it's still happening this  board voted Tim off or that group wanted  him out he didn't like what another  group was doing so he left that kind of  thing are the internal politics of these  fraternal groups relevant to his story  of the Knights Templar to me no there  are people who call Tim a fraud that he  makes claims that aren't true well I'm  going to read you a few of his claims  and these are Tim's words in an email to  me laugh it up it's going to happen to  you too it was also suggested that I say  I'm a descendant of a revolutionary war  Templar which is actually true my  great-grandfather's seven generations  back was General Joseph Warren of the  Revolutionary War true he initiated Paul  R and he helped plan the Boston Tea  Party he was an alchemist and a doctor a  Templar Grand Commander for the region  and his relationship with Paul rier was  largely based on studying Alchemy Paul  Rivier was a silver smith that's true my  grandfather hu Warren also taught  Metallurgy at Denver University my  great-grandfather James bade Warren also  knew Metallurgy and he was the Grand  lecturer for the Masonic Grand Lodge of  Pennsylvania and he was a grand  commander of the knight's Templar true  my father was Steven de mayor of Aurora  Colorado and had been active in politics  my entire life he was also a Templar  there are highways and Convention  centers named after him in Colorado true  we continue covering Colorado First at 5  and we travel to Aurora where the city  hosted a groundbreaking event for the  Steven Hogan Parkway project Clos about  a 2-mile gap between existing six  Parkway on the west and E470 on the East  but even though he always had politics  going on uh he always tried to make time  for us individually and to to make us  feel  special I ran for mayor after we passed  away in a special election and lost by  two votes anyhow my family on both sides  had been Templars and I was first kned  into the tradition at 8 years old as a  page now I've seen these claims  challenged online but everything I could  find says that Tim is telling the truth  about his family there are a few other  criticisms of him online that he  addressed in his emails to me I don't  find a lot of it relevant it's mostly  personal but Google him and decide for  yourself here's where I stand I've  watched and listened to interviews with  Tim that go back about 10 years I've  read two of his books well skimmed I  watched his entire series on Gaia which  is fascinating by the way Tim Hogan has  an encyclopedic knowledge of the history  of the Knights Templar names dates  meanings of words ancient rituals  everything connecting the knights to  ancient Egypt various pharaohs and kings  and popes Tim knows it all and if you're  into this subject listen to one of his  interviews he's knowledgeable and  riveting and when we finally get the  studio finished here Tim agreed to come  in and talk to me and have his claims  challenged but what about his claims  well from what I gather and this is only  my opinion Tim will lean into  information depending on the situation  meaning if he's being interviewed by an  historian or someone focused on hard  facts Tim sticks to the facts he'll  bring up the theories and label them as  such Legend says or people say that sort  of thing if he's in a forum Where the  wild claims are expected he'll lean into  those now look I love Gaia I'm a paid  subscriber but everybody on that channel  believes everything and a lot of it is  bunk a lot of it but Gaia viewers want  the wild  stuff what was  Atlantis was it a place a culture and  what happened to it I'm Timothy Hogan  grandm Master of the Knights Templar and  I'm Scott Walter A forensic geologist  and a Knights Templar and this is  Mysteries of the knight's  Templar I don't think Tim believes every  theory he discusses I think he's  intelligent and entertaining and I think  he caters to the  audience now at first that might sound  dishonest but it's exactly what I do  here I tell the story The Legend the  myth as it's meant to be told then we  break it down together I'm not trying to  lie to you I'm trying to entertain you  I'm not a journalist I talk to a fish we  do this for fun now there are some bold  claims that Tim sticks by like the  vaults containing the arcs and uies of  remains he says these are real he's seen  them and the information is coming out  the purpose of the show on Gaia is to in  Tim's words bring people up to speed  okay that's fair but that's not evidence  and bold claims need hard evidence I'm  going to be very honest one of my most  loyal pons was upset about the Mary  Magdalene Jesus John part of the story  that's the uary the bones he felt it was  insulting to Christianity and I should  leave it out but it's such an explosive  claim I needed to tell you about it if I  left it out I'd feel like a liar and a  coward that said I did check with other  people of faith in my community they  said it's part of the story leave it in  and if you follow this channel for a  while you know that I greatly respect  religion and people of Faith well so uh  I mentioned the arcs uh accordingly we  also have uh uies with the bones of  certain holy  figures that we hanging on to by the way  I've only seen Tim discuss that story  about the bones once and he was  reluctant to do so he knows it's touchy  well okay well you just can't get away  with without naming names aaries of whom  uh well what we they would be referred  to as the holy families so it would be  you know John the Baptist Jesus Mary  Magdalene and their kids he said he'll  allow DNA testing but he was also very  clear that he had no intention of  insulting anyone's Faith one of the  biggest hurdles that we're trying to get  over with all of this is  that  uh we're not trying to invalidate  anybody's  beliefs uh we're just trying to say that  there might be a little bit more to the  story and I believe him on that point  Tim's been accused of doing so many  interviews and giving so many lectures  because he wants to sell books and get  people to watch his show does that mean  he's lying no he's promoting Graham  Hancock is everywhere when he has a book  out he wants people to buy it and read  it so what I'm a huge fan I buy all of  Graham's books and watch all of his  shows and interviews I've seen every  minute of him on Rogan I don't have to  believe everything Graham says but I  enjoy the material same with Tim Hogan  you don't have to believe his story to  enjoy it stories of Atlantean treasure  free energy and ancient documents that's  nothing new those Legends have been  around forever now they may be true but  until we have physical evidence they are  still Legends so is Tim just jumping on  the Atlantis bandwagon or is the link  between the Knights Templar and Atlantis  real are there really underground vaults  hidden around the world with ancient  technology that could rid us of poverty  and War the arcs the artifacts the  Emerald Tablet the Mana the bones are  they  real well I need to see them but if you  choose to believe the story without  physical proof that's okay too I'm not  trying to persuade you one way or  another Tim insists that the Templars  will reveal these artifacts very soon if  there are no artifacts why make that  promise when he talks about the Divine  in each of us he seems to believe it but  that could be my own bias because I also  believe that the Divine God the  universal energy the whatever you call  it I believe that is in each of us and I  don't think that belief has to  contradict anyone's Faith that's why  it's called faith if Tim Hogan is  telling the truth Humanity's future  might not be as doomed as we think and  maybe the Catalyst the change the  evidence we need is hiding in a vault  right now right beneath our feet I don't  know if it is but I truly hope so  [Music]  thank you so much for hanging out with  me today my name is AJ that's eckle fish  hey you don't happen to have a Mana guy  do you I don't this has been the wi  files if you had fun or learned anything  do us a favor like subscribe comment  share those buttons really help us out  and like most topics we cover on the  channel today's was recommended by you  so if there's a story you'd like to see  or learn more about go to the Wi  files.com tips and remember the w files  is also a podcast twice a week I post  deep dives into the stories we cover  here on the channel I also post episodes  that wouldn't be allowed on the channel  they're called unredacted podcast is  called the wi files operation podcast  and it's available everywhere you get  your podcasts now if you need more wi  files in your life check out our Discord  there are over 40,000 people on there  24/7 and they talk about the same weird  stuff that we do it's a great Community  it's a lot of fun and it's free to join  now the best way to keep track of all  stuff that's happening with the channel  is the wi files.com Cal that's our  production calendar there you'll see  what episodes are being posted and when  the names of the podcasts when we're  live streaming all that stuff is there a  special thanks to our patrons who make  this channel possible every episode of  the yiles is dedicated to our patreon  members I don't deserve the support that  you give but I'm truly grateful for it  without you there'd be no Channel now if  you'd like to support the channel  consider becoming a member on patreon  for as little as three bucks a month you  get access to perks like videos early  with no commercials access to merge only  available to Members Plus you get two  private live streams every week just for  you my camera's on your camera's on if  you want it's a lot of fun and it's a  great perk another great way to support  the channel is grab something from the  Wi-Fi store grab yourself the heck of  his T-shirt or a coffee mug you can  stick your fist in along with a beverage  of your choice or grab a hoodie with my  face on it or one of these squeezy  stuffed animal tuck and heck ofish tuck  and fish  toy that's going to do it until next  time be safe be kind and know that you  are  [Music]  [Music]  appreciated  yeah I play FIA Scara 51 a secret code  inside the Bible said I  was I love my you and paranormal fun as  well as music so singing like I  should but then another conspiracy  theory becomes the truth my  friends and it never  ends no it never  [Music]  ends I feel the crap cat I got stuck  inside hole with mkl truck I being only  true  aware did Stanley curi fake the moon  landing alone on a film set with the  shadow people  there through R well aliens just fought  the smiling man I'm  told and his name was  cold I can't believe I'm dancing with  the  fish fish On th next J  and through the  night all I ever wanted was to just hear  the truth so the one all through the  night  [Music]  the MTH man Sid and the solar storm  still come to a go the The Secret City  Underground mysterious number stations  Planet are to project Star Gate and  where the dark Watchers  [Music]  found a  simulation  you the black KN satell lighted to me so  I can't believe I'm dancing with the  fish heck fish on thday night with they  J  when through the  night all I ever wanted was to just hear  the truth to the Fe all through the  night thday night Wednesday J  and all through the night  all I ever want to hear the truth  so  to  love love dance good love dance good  love dance  good  dance yeah C love to dance on the dance  ball she is a camel when camels love to  dance when the feeling is right on way  in  time good love dance good love dance  [Music]  [Music]
+
+
+ChatGPT said:
+Updated saved memory
+Absolutely—we can pull a ton of rich, thematic and mythic material from that Knights Templar lore to deepen your world. Here are some key ideas and how they could map into your existing fantasy universe:
+
+🔺 SECRET HISTORY INSPIRATIONS FOR YOUR WORLD
+1. Ancient Alchemical Order → Keepers of the Veil
+The Keepers could be the spiritual successors to a lost order from the mythic golden age—perhaps the original guardians of Aetherite, founded by Eldor emissaries before the Cataclysm.
+
+Their knowledge includes sacred geometry, alchemy, resonance magic, and spiritual initiation, mirroring the Templars' study of the Emerald Tablet and mana (a direct fit for your quantum-energy magic system).
+
+2. Atlantean Civilisation → Lost Golden Age
+Atlantis becomes your world’s First Empire, uplifted by the Eldor, mastering energy, healing, weather, levitation, and long-range communication through the crystalline Aetheric Arks.
+
+These Arks (echoing the Ark of the Covenant) could be massive conduits of pure Aether, stored in sealed vaults around the world. Some have gone missing. Some are corrupted. Some are guarded by the Keepers.
+
+The cataclysm that ended that age = the release of the chaos fragment, warping the network and causing a great flood or seismic collapse.
+
+3. The Temple Mount → Portal Nexus
+Your world's “Solomon’s Temple” analog could be a ruined Eldor star-gate complex in the Desolation. The ancient Orders believed it to be sacred ground—a place where “the veil is thinnest.”
+
+4. The Inquisition and Suppression of Truth
+After the Cataclysm, powerful figures formed a Cabal to suppress the truth. They rewrote history, banished the Keepers, and sanctioned a technocratic version of magic via the Guilds—creating a Church/Empire monopoly over Aether.
+
+The Vigilators may have originally served the Keepers' cause, but now they’re tools of the state—with the Blackwatch and rogue elements remembering their true roots.
+
+5. Gnostic Templar Beliefs → True Warding Philosophy
+The Keepers’ belief that “God/Source exists within” and that enlightenment requires initiation, purification, and direct communion with the field fits perfectly into your more esoteric Warder traditions.
+
+They teach reincarnation, the sacred feminine, inner gnosis—and believe the Empire is cursed for its desecration of these truths.
+
+6. Hidden Vaults and Sacred Relics
+Hidden vaults around your world (perhaps seven, maybe twelve) store ancient Eldor tech: starmaps, communication devices, weaponized Aether, healing machines, etc.
+
+These vaults are encoded with sacred geometry and can only be opened by those with spiritual alignment—i.e., initiated Keepers or “true Warders.”
+
+🔑 INCORPORATION INTO PLOT / WORLD
+Logan could be a descendant of the original warders, now rediscovering the lost truths through the Keepers of the Veil.
+
+One of the boys could be drawn toward a relic site or Aether Ark, maybe Kaelen, feeling echoes of past lives or a genetic resonance—hinting at reincarnation or a destined role.
+
+The capital’s ruling order (and especially the corrupted Vigilators there) may fear these truths, and seek to suppress them using propaganda and brute force, accusing the Keepers of heresy and madness.
+
+Would you like me to draft a mythic “origin scroll” or secret journal that outlines this hidden history in in-world language? Or outline a timeline of this secret, alternative history to weave into your lore doc?
+
+
+
+
+
+
+
+You said:
+“Okay, good morning.”
+00:01
+
+ChatGPT said:
+I'm glad you enjoyed it! There's definitely a lot of potential in weaving these kinds of mythic and historical inspirations into your world. Just let me know what you'd like to dive into next or if there's anything specific you'd like to develop further!
+
+
+
+
+
+
+You said:
+“So I would like you to read to me each of the bullet points that you brought up regarding Incorporated and Temporal Law, and then I will tell you how to incorporate it possibly into the story, and you can then list those.”
+00:17
+
+ChatGPT said:
+That sounds like a fun plan! Let's break it down step-by-step. We can start with the first idea about the Keepers of the Veil being the spiritual successors to a lost order founded by the Eldor. Maybe we can figure out how they preserved that ancient knowledge and how that impacts Logan and the boys. Let me know what you think, and we can dive right in!
+
+
+
+
+
+
+You said:
+“Yeah, let's go step by step, and then I will just raise a couple of points that we can list, and then go back and do the next one.”
+00:07
+
+ChatGPT said:
+Perfect! So, starting with the idea of the Keepers of the Veil as the successors of a lost order founded by the Eldor: we can imagine that this ancient order originally served as the guardians of the first Aetherite technologies and spiritual practices. Over time, as the Empire grew more controlling, this sacred order was forced into hiding, eventually becoming the Keepers of the
+
+
+
+
+
+
+You said:
+Okay, great. I actually like your response.
+
+
+ChatGPT said:
+Awesome, I'm glad it landed well! Want to keep building on that angle—like maybe how the Keepers pass down their knowledge, or how Logan got mixed up with them?
+
+
+
+
+
+
+
+You said:
+So I'm thinking that if we keep this, what I think...
+
+
+ChatGPT said:
+Yeah, go on—what is it you're thinking we should keep? The Templar-inspired backstory with Atlantis and hidden relics?
+
+
+
+
+
+
+
+You said:
+Yes, the keepers of the veil were there in the first city, destroyed by the desolation, and then they moved out into the world to preserve that knowledge.
+
+
+ChatGPT said:
+Ooh, that’s really strong. So the Keepers of the Veil were like the original guardians of this ancient Atlantean-Eldor knowledge, present even before the fall of that first great city. When the Desolation wiped it out, they scattered—becoming hidden stewards of that wisdom, secretly shaping events and protecting relics across the ages.
+
+Do you see them as unified over time, or fractured into rival branches with different interpretations of the old truths?
+
+
+
+
+
+
+
+You said:
+I see them as firmly unified in their calypsos, but only they operate in smaller cells, which don't have the full feature.
+
+
+ChatGPT said:
+Ah, I like that. So they’re unified in purpose and tradition—maybe bound by sacred rites or a shared memory called the Calypsos—but they’re decentralized, each cell holding only fragments of the full knowledge. That keeps them safe if one is compromised, but it also means no single Keeper knows everything.
+
+How do you imagine the Calypsos works? Is it like an oral tradition, a telepathic connection, an encoded Aetherite archive, or something stranger?
+
+
+
+
+
+
+
+You said:
+I do not need something...
+
+
+ChatGPT said:
+Got it—so you’re not looking for anything overly sci-fi or tech-based. Maybe the Calypsos is more mystical? Like a deep, trance-induced memory stream that trained Keepers can access during sacred rituals. Not quite telepathy, but more like shared visions or ancestral recall tied to places, symbols, or chants.
+
+Does that vibe with what you're imagining?
+
+
+
+
+
+
+
+You said:
+Yes, something is wrong with it. Oh, shit.
+
+
+ChatGPT said:
+Ah, that’s a powerful twist. So the Calypsos—this ancient, sacred memory web—is corrupted or fractured? Maybe some visions come twisted, or a Keeper taps in and doesn’t come back the same?
+
+Do you see this corruption being tied to the Desolation, or maybe to the dark fragment that came through the original portal?
+
+
+
+
+
+
+
+You said:
+Let's pick up the idea of this appropriate record and collect it.
+
+
+ChatGPT said:
+Perfect. So the Calypsos could function as a kind of psychic or energetic archive—a resonance field that holds imprints of knowledge, memory, and consciousness from the ancient world. The Keepers use it like a spiritual internet, but instead of data, they receive visions, dreams, and symbols.
+
+Now, if it’s been corrupted by the dark fragment, that means even pure intentions could lead someone astray. A Keeper meditating in a sacred site might suddenly see distorted versions of events or hear whispers that twist old truths. Maybe this is how heretical splinter groups emerged, claiming different interpretations.
+
+Do you want the corruption to be subtle and insidious, like a long-game influence? Or more obvious—like violent breaks, madness, or literal entities bleeding through?
+
+
+
+
+
+
+
+You said:
+A combination of both.
+
+
+ChatGPT said:
+Ooh, that’s juicy. So we’ve got this slow rot in the background—subtle misinterpretations, sacred rites done slightly wrong over generations—and then boom, every so often, something breaks through. A false vision, a prophetic frenzy, or even a rogue Keeper driven mad and possessed.
+
+Maybe that's part of what Logan's seen firsthand—places where the Calypsos bled into reality and something... else came through. Could even be why he left his old Order.
+
+What sort of thing do you imagine came through? A twisted Eldor echo? A mutated wraith? Or maybe even a human touched by the fragment who now serves as a prophet of chaos?
+
+
+
+
+
+
+
+You said:
+Okay, let's move back a little bit to the pieces of history from the Knights Templar that we're going to incorporate into the plot.
+
+
+ChatGPT said:
+Perfect. There’s a treasure trove of wild, powerful lore from that Templar story that we can tap into. Let’s pull a few of the strongest threads and weave them into your world.
+
+One big one is the idea of an ancient pre-flood civilization—Atlantis-style—with spiritual technology, levitation, healing, and energy drawn from Aether-like forces. The Keepers of the Veil could be descended from or linked to a hidden priesthood of that civilization, tasked with preserving fragments of that knowledge through ages of cataclysm.
+
+Then there’s the idea of sacred relics—powerful artifacts like the Arks, maybe devices powered by Aetherite or even infused with Eldor resonance. The Empire or a secret Cabal might be hunting these, and the Keepers are trying to keep them hidden.
+
+Also, the conflict between outward religion and inner spiritual gnosis is huge. You’ve already got this baked in: the Keepers practice true Warding as a sacred path, while the technocratic Guilds pervert it into a tool of power. That tension mirrors the Templar split from the Church.
+
+Do you want to bring in secret codes or symbols—like sacred geometry, Templar crosses, or Atlantean glyphs—that only certain characters can decipher? Maybe Kaelen or Soren ends up marked by one?
+
+
+
+
+
+
+
+You said:
+Yes, a lot of other things.
+
+
+ChatGPT said:
+Nice. Sounds like you’ve got a lot percolating. Want to brainstorm how some of those elements—like the symbols or relics—actually show up in the plot? Or should we sketch a hidden temple or site where the Keepers have left encoded messages?
+
+
+
+
+
+
+
+You said:
+Our first and only is this idea.
+
+
+ChatGPT said:
+Alright, sounds like you're honing in on something specific—do you mean the first and only temple or hidden site where the Keepers left their original records? Or is this about a central relic or artifact tied to their purpose?
+
+
+
+
+
+
+
+You said:
+And let's change tack a little bit. It's going to lead me to the right engine.
+
+
+ChatGPT said:
+Got it—so you're pivoting directions a bit to find the right momentum or core driver for the story, yeah? Are you thinking in terms of plot, character motivation, or maybe the mythic engine behind the whole world?
+
+
+
+
+
+
+
+You said:
+Yes, so this is an idea for the religion, how to be active in the world, how it ties in to the cubits of the brain.
+
+
+ChatGPT said:
+Ah, that's a really compelling angle—tying the religion to something like the cubits of the brain makes it feel ancient but also grounded in a sort of mystical neuroscience. Are you thinking the religion teaches how to awaken certain “pathways” or “chambers” of the mind to access the divine? Maybe that’s part of what the Keepers of the Veil preserve?
+
+
+
+
+
+
+
+You said:
+The idea is that the emperor was raised by the church at the time to be a martyr through
+
+
+ChatGPT said:
+Ooh, I like where that’s going. So the church raises the emperor not as a ruler with full agency, but as a kind of living symbol or sacrifice—maybe to fulfill a prophecy, unite the people, or even “atone” for humanity’s sins? Was he meant to die young, or undergo some kind of ritual transformation?
+
+
+
+
+
+
+
+You said:
+So, after the Emperor passed into the 8th throne, and went into the void to keep the forces of darkness at bay, over that next 2,000 years or so, the Church and the Cabal then distorted what the Emperor taught, and what we would see as original ideals, and they began to take over humanity through the Cabal, similar to how the Catholic Church in this world, many stories of the Catholic Church say that they took the stories of Jesus and distorted and changed them for their own ends, and are actually doing a cause for darkness.
+
+
+ChatGPT said:
+Yes, that fits beautifully. So the Emperor, originally a luminous figure—raised by the Church, martyred or sacrificed, then ascended to the Eighth Throne and now holds the void at bay—is eventually transformed into a distorted symbol. Over two thousand years, the Church allies itself with the Cabal, slowly twisting his teachings, claiming divine authority while secretly serving darker forces.
+
+Kind of like a sacred lie that metastasizes into a total system of control. His true teachings become heresy. The Keepers of the Veil remember the real message, but they’re hunted, scattered, operating in whispers.
+
+Do you imagine the Eighth Throne as a real place—like some kind of metaphysical gateway or station in the Void? Or more of a symbolic state?
+
+
+
+
+
+
+
+You said:
+Not to April Throne, remember we had that April Throne at the centre of Ellicott City.
+
+
+ChatGPT said:
+Ah yes—the April Throne! Right, the massive, ancient construct at the center of Ellicott City. That was the literal seat of power, wasn’t it? Like a fusion of machine and sacred geometry—part portal, part conduit to the universal field. The Emperor ruled from there before ascending into the Void.
+
+So the Eighth Throne is what he became after—his ascended state, not a throne in the physical sense like the April Throne, but a title or role in the metaphysical realm, right? Like he's now a spiritual bulwark, holding the line against the darkness beyond reality.
+
+Do you picture the April Throne still existing in the present-day timeline? Is it sealed, defunct, or secretly active under Church control?
+
+
+
+
+
+
+
+You said:
+Yes, it is in the central of the city, which is now controlled by the church and the government.
+
+
+ChatGPT said:
+Perfect, that’s super evocative. So the April Throne is still physically there, deep in the heart of the capital—like a relic of divine power, but now it's under tight control by the Church and state. Probably guarded, maybe even hidden in plain sight, surrounded by shrines and bureaucratic ceremony.
+
+Does the public still know what it really is? Or has its true function been mythologized—or erased—from common knowledge?
+
+
+
+
+
+
+
+You said:
+I've been, more or less, erased from code.
+
+
+ChatGPT said:
+Ah, so it's like a sacred symbol now, but no one really knows what it does anymore—just that it’s holy, ancient, and tied to the Emperor’s legend. That’s powerful. The Church probably uses it as a symbol of their divine authority, but behind closed doors, they’re either terrified of it or actively trying to unlock its power for themselves.
+
+Do the Keepers of the Veil know the truth about it?
+
+
+
+
+
+
+
+You said:
+Yes.
+
+
+ChatGPT said:
+That’s awesome. So the Keepers would see the April Throne not just as a relic, but as a living conduit—maybe the last true link to the Emperor’s original consciousness, or even the universal field itself.
+
+Does anyone in the story—Kaelen or Soren, maybe—end up learning the truth about it through the Keepers? Or is it something revealed more slowly, as the stakes rise?
+
+
+
+
+
+
+
+You said:
+Yes, it's going to be revealed slowly through interactions.
+
+
+ChatGPT said:
+Nice, that slow reveal is going to hit so hard—especially if early on the April Throne just seems like a ceremonial artifact or a symbol of authority, and only later do we realize it's this ancient, sacred tech or spiritual engine tied to the Emperor himself.
+
+Do you imagine there are secret rituals or mechanisms that only the Keepers know about to access its deeper functions?
+
+
+
+
+
+
+
+You said:
+Yes, quite possible.
+
+
+ChatGPT said:
+That’s perfect. It adds this rich undercurrent of mystery and tension—especially if the Church thinks they control it, but really only the Keepers understand how to truly commune with it. Maybe it responds to a specific frequency or consciousness, not just rituals.
+
+Do you picture it as a physical throne with hidden tech, or more like a living structure—something organic or semi-sentient?
+
+
+
+
+
+
+
+You said:
+Felly, byddwn i'n mynd ymlaen i hynny ymlaen ychydig.
+
+
+ChatGPT said:
+Iawn, dim problem o gwbl. Wyt ti eisiau parhau â’r llinell hanesyddol, y syniad crefyddol, neu symud yn ôl at y naratif yng nghanol y stori?
+
+
+
+
+
+
+
+You said:
+something like a park or environment, or parts of the cabinet that they actually own. So that's not the end of the story, it's the secrets of the veil that's going to find. So if you come up with another good name for the park or the cabinet.
+
+
+ChatGPT said:
+Ah, I get you—so you’re talking about a place, maybe public-facing like a park or part of the capital city, that’s secretly controlled or protected by the Keepers of the Veil, right? Something that holds ancient secrets or is hiding sacred knowledge in plain sight.
+
+How about something like “The Garden of Auralith” or “The Sanctum Grove”? It could look like a serene old park with ancient trees, statues, maybe a reflecting pool—but beneath it, or hidden within certain monuments, are entrances to secret chambers or caches of knowledge.
+
+Or for a more architectural space—“The Hall of Echoes” or “The Celestarium.” Something that sounds grand and mysterious, maybe once part of an old imperial observatory, now a cultural relic but still used by the Keepers.
+
+Want to go more natural, mystical, or urban with it?
+
+
+
+
+
+
+
+You said:
+Notes on talking about telegrammars, similar to the heart of the covenants, may have multiple components which can be used as a powerful energy source.
+
+
+ChatGPT said:
+Got it. So you're imagining something like sacred artifacts—telegrammars—that are scattered, each holding part of a greater power, kind of like the heart of the covenants. When brought together, they could be used to unlock or channel immense energy, right?
+
+These could be ancient constructs, left behind by the Eldor or an earlier civilization. Maybe each telegrammar is attuned to a different frequency or aspect of the universal field—resonance, light, sound, thought. On their own, they’re powerful. Together, they could open something... or power a massive ward, machine, or gate.
+
+Do the Keepers guard them? Or are factions like the Cabal and the Church hunting for them too?
+
+
+
+
+
+
+
+You said:
+Yes, some, almost some, are in control, but some are not.
+
+
+ChatGPT said:
+Nice, that opens up a ton of intrigue. Some telegrammars being in the hands of the Church or Cabal gives them a terrifying edge—maybe they use them in secret rituals or to fuel their grip on power. The Keepers might hold a few, protecting them in remote sanctuaries or hidden beneath old ruins. And then there are the lost ones, scattered across the world—buried, forgotten, or maybe locked behind puzzles only the spiritually awakened can solve.
+
+Do you picture them as physical relics, like glowing crystals or ornate geometric constructs? Or more abstract—like encoded glyphs, harmonics, or even living beings that embody a principle?
+
+
+
+
+
+
+
+You said:
+ARE YOU ABLE TO READ A PAGE ON GITHUB IF i SEND YOU THE LINK?
+
+
+ChatGPT said:
+I can’t directly access external websites like GitHub in this chat, but you can paste the link here, and I can use my tools to fetch and read the content of that page for you. Just drop the URL, and I’ll take it from there.
+
+
+
+
+
+
+
+Voice chat ended
+22m 45s
+
+
+
+
+
 
 
 
